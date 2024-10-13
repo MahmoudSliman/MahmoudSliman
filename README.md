@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MahmoudSliman
 - 👀 I’m interested in tecnology
-- 🌱 I’m currently learning Hight school
+- 🌱 I’m currently learning coding
 - 📫 How to reach me abnsoliman122@gmail.com
   
 
